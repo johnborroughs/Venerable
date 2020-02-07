@@ -9,4 +9,4 @@ A naive man is appointed to fill a vacancy in the United States Senate. His plan
 
 Director: Frank Capra
 Writers: Sidney Buchman (screen play), Lewis R. Foster (story)
-Stars: James Stewart, Jean Arthur, Claude Rains | See full cast & crew »
+Stars: James Stewart, Jean Arthur, Claude Rains
